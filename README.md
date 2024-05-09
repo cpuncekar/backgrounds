@@ -52,3 +52,5 @@ https://cdn.discordapp.com/attachments/1093703543422201946/1238178534074224832/b
 
 
 ![Background Gradiant Flowing Geomtric](busterpunc_Abstract_trendy_gradient_flowing_geometric_pattern_b_fb669e6a-7e11-4bba-ae01-a0d67638bb0c.png)
+![Background Gradiant Gold](busterpunc_Scattered_golden_lines_on_a_white_background._add_mo_b0f77075-09cc-44b4-b678-c2193faa9203.png)
+
