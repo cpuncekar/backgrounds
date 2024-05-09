@@ -51,4 +51,4 @@ Blue Background
 https://cdn.discordapp.com/attachments/1093703543422201946/1238178534074224832/busterpunc_Blue_abstract_wave_background_with_white_background._43f16485-ec6a-45f6-be6e-7f89651126d2.png?ex=663e571e&is=663d059e&hm=83ad360b1efb7cada8e49de597887c57852c8a9ef1cde14abc738942f63fad4e&
 
 
-![Background Gold](busterpunc_Abstract_trendy_gradient_flowing_geometric_pattern_b_fb669e6a-7e11-4bba-ae01-a0d67638bb0c.png)
+![Background Gradiant Flowing Geomtric](busterpunc_Abstract_trendy_gradient_flowing_geometric_pattern_b_fb669e6a-7e11-4bba-ae01-a0d67638bb0c.png)
